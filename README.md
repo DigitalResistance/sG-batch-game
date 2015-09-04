@@ -3,3 +3,5 @@ fucking complete shit that i made real quick while i was board on my flight to j
 
 wtf come on you start by selecting game.bat and thats it!!! 
 NO idk what the fucking other files other than the batcch ones are.
+
+Updates soon to come.
